@@ -1,1 +1,1 @@
-# Coding-Samurai-T-1
+# Tripple one olution_Task_1
