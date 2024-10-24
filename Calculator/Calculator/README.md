@@ -1,1 +1,1 @@
-# Tripple one olution_Task_1
+# Tripple one solution_Task_1
